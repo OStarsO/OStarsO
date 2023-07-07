@@ -4,4 +4,4 @@
 ![](https://raw.githubusercontent.com/xLikeWATCHDOG/github-stats/master/generated/languages.svg#gh-light-mode-only)
 ---
 #### Visitors
-![](https://count.getloli.com/get/@xLikeWATCHDOG?theme=rule34)
+![](https://count.getloli.com/get/@OStarsO?theme=rule34)
